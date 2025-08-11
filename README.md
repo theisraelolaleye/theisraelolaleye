@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **theisraelolaleye@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VT0BYa5OxFQf4I79S5IbcJNSYDuYdWpp/view?usp=drive_link](https://drive.google.com/file/d/1VT0BYa5OxFQf4I79S5IbcJNSYDuYdWpp/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google](https://drive.google.com/file/d/1VT0BYa5OxFQf4I79S5IbcJNSYDuYdWpp/view?usp=drive_link)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
